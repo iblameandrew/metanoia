@@ -12,4 +12,6 @@ Que Dios elija pecadores para su comisión no es solo poetico; si se analiza ana
 
 Cuando alguien tiene el infortunio de mezclar en su vida A+B+C va a sufrir mucho, aún esa persona en el vientre de su madre no lo haya pedido. La historia del hombre hecha realidad es la historia cristiana, y es que todo hombre va a hacer esto en algun momento de su vida: esta mezcla profana, y simplemente no va a tener lugar en el mundo. Los perfeccionistas tienen su lugar tanto como los profanos: donde los perfeccionistas reparan y enderezan; y observan caracter, los profanos comprenden, aceptan y abrazan. El problema es que todavia el mundo lo distinguen facciones como si fuera Lucha Libre o un partido de futbol. Rojo vs Azul. El Gato Negro vs El Perro Blanco. Republicanos vs Democratas....
 
-La comisión del Señor Jésus es la reconciliación entre opuestos. El hombre que ya no le sacuden los opuestos ya esta libre de pecado y es como el Señor Jésus.
+Finalmente dentro de esta argumentación hay muchos que el chanclas acusa dia y noche: ¿crendeciales? Tengo licenciatura en Ingeniería de Software, no soy doctor en filosofía, no soy el puto papa y dentro de mi oficio fui contratista en Google de una manera muy discreta y mediocre, y despues de pedirle a Grok que clasificara mi github para un rol de clase mundial en un laboratorio de IA o en una empresa Fortune 500 la calificación fue: 7.5 - ese pinche numero es mi vida. Actualmente ni siquiera tengo empleo estable.
+
+En verdad, por los criterios sensatos, nadie deberia escucharme. 
